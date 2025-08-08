@@ -1,1 +1,1 @@
-# refletindo-sobre-IA
+# refletindo-sobre-inteligencia-artificial-na-escola
